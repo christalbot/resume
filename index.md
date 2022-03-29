@@ -1,4 +1,4 @@
-# Resume
+# Curriculum vitae
 ## Chris Talbot
 ### Biography 
 >Experienced Digital Officer with a demonstrated history of working in the higher education industry. Skilled in digital marketing, search engine optimization, web accessibility, personalisation and user experience.
