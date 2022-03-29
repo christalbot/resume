@@ -17,4 +17,7 @@ Grade: Distinction
 The University of Huddersfield
 BSc (Hons) Multimedia & Computing, Multimedia 2006 - 2010
 Grade: 2:1
+
+---
+
 [LinkedIn profile](https://www.linkedin.com/in/chris-talbot-b769722b/)
